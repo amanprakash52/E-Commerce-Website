@@ -1,1 +1,1 @@
-LIFESTYLE STROE Ecommerce Website Designs That Inspire Customers to Spend Money.
+LIFESTYLE STORE Ecommerce Website Designs That Inspire Customers to Spend Money.
